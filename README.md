@@ -114,7 +114,7 @@ Acesse a aplicação:
 
 **Silvanio Góis**
 
-**Gestor de Operações e Negócios | Business Intelligence | Data Analytics | Inteligência Artificial aplicada aos Negócios | Automação de Processos | Melhoria Contínua**
+**Gestor de Operações e Negócios | Business Intelligence | Data Analytics | Inteligência Artificial aplicada aos Negócios | Processos | Melhoria Contínua**
 
 🌐 **Portfólio**
 https://www.silvaniogois.com.br/
